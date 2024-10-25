@@ -6,8 +6,8 @@
 - 😄 Pronouns: have none
 - ⚡ Fun fact: i love the series ✨ bleach ✨
 
-
-
+-
+-
 
 -   its dark... im afraid 
 
