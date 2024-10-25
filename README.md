@@ -1,5 +1,5 @@
 /veteran gamedev and develeoper (not active rn) and student 
-- ive got potenitial and am not wasting it (im not lost)
+- ive got potenitial and am not wasting it aka Its not over for me 
 
 - 👋 Hi, I’m @MD-eClipse
 - 👀 I’m interested in mostly random but complicated stuff i can do easily
