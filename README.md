@@ -1,3 +1,6 @@
+/veteran gamedev and develeoper (not active rn) and student 
+- ive got potenitial and am not wasting it (im not lost)
+
 - 👋 Hi, I’m @MD-eClipse
 - 👀 I’m interested in mostly random but complicated stuff i can do easily
 - 🌱 I’m currently learning most things ill need in life
